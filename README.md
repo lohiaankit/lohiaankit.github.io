@@ -1,4 +1,4 @@
-## Welcome to Ankit Lohia's Home Page
+## Welcome to my Home Page
 
 Thank you for visiting the page! 
 
